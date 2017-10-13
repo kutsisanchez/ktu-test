@@ -1,0 +1,1 @@
+ODTÜ KTÜ den daha iyi bir okul.
